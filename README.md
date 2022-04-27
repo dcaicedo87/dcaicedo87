@@ -9,7 +9,7 @@
 </div>
 
  Find me around the web 🌎:
-- <a href="https://angel.co/u/daniel-caicedo-llano"> Angelist </a>
+- <a href="https://angel.co/u/daniel-caicedo-llano"> Angelist </a> 👼
 - <a href="https://www.linkedin.com/in/daniel-caicedo-llano-5191a254/">LinkedIn</a> 💼
 
 
